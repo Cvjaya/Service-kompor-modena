@@ -8,10 +8,6 @@ Informasi lebih jelas hubungi langsung via Sms / Tlpn / WhatsApp
 
 0822 1941 3196 Telkomsel
 
-0819 3299 6467  Xl
-
-0813 1350 8254 WhatsApp
-
 Atas nama : Maman
 Kantor : Jakarta pusat,Kemayoran,Jln.Utan Panjang No 31
 Hari libur atau minggu kami tetap melayani service kompor gas modena
